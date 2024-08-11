@@ -6,7 +6,7 @@
 
 | Member | Last PM |
 | ------ | ------- |
-| Adel | Kamis, 1/08/2024 18:45 WIB |
+| Adel | Kamis, 1/08/2024 20:45 WIB |
 | Alya | Sabtu, 10/08/2024 16:50 WIB |
 | Amanda | Sabtu, 10/08/2024 16:07 WIB |
 | Anindya | Sabtu, 10/08/2024 16:07 WIB |
